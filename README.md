@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on mobile games especially level design and mechanics design...
 - 📫 You may reach me through:   
         E-mail: ykelho@gmail.com [personal] ; kyang06@nyit.edu [work]
-        Discord: Watermato#0520
+        Discord: Watermato#0520 ;
         LinkedIn: https://www.linkedin.com/in/kelho-yang-8b5665181
         
 
